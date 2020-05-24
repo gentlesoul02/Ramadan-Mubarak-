@@ -10,4 +10,4 @@ and I protect us throughout this pandemic period and after.
 *HAPPY EID-IL-FITRI*
 *STAY SAFE.*
 
-*OLORII CARES*
+Sulaiman Abdullah cares
